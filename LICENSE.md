@@ -1,4 +1,4 @@
-# 
+# custom bot de trading de OKX ejecutor es el mejor bot de trading de OKX ejecutor con margen cruzado y monitoreo de precios. Seguro, confiable y optimizado para estrategias de
 
 
 
